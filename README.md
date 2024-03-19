@@ -1,6 +1,6 @@
 # Hi there!
 
-##My name is Vlad .I am a third-year student at MAI in Moscow,Russia. I am dedicated Backend Developer with a strong proficienty in Python, Golang, Linux, Git, PostgresQL, gRPC and REST API. I am passionte about creating efficient and scalable backend systems that meet the needs of modern applications.
+## My name is Vlad .I am a third-year student at MAI in Moscow,Russia. I am dedicated Backend Developer with a strong proficienty in Python, Golang, Linux, Git, PostgresQL, gRPC and REST API. I am passionte about creating efficient and scalable backend systems that meet the needs of modern applications.
 
 
 ### Languages and Tools:
