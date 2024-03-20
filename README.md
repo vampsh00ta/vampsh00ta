@@ -1,8 +1,8 @@
 # Hi there!
 
-## My name is Vlad .I am a third-year student at MAI in Moscow,Russia. I am dedicated Backend Developer with a strong proficienty in Python, Golang, Linux, Git, PostgresQL, gRPC and REST API. I am passionate about creating efficient and scalable backend systems that meet the needs of modern applications.
+## Меня зовут Влад. Я учусь на третьем курсе МАИ . Я увлеченный бэкэнд-разработчик со знаниям Python, Golang, Linux, Git, PostgresQL, gRPC и REST API. Я увлечен созданием эффективных и масштабируемых серверных систем, отвечающих потребностям современных приложений.
 
-## Currently i work  on my petproject "Sea Battle", based the Telegram platform.
+## Сейчас я работаю над своим пет-проектом Battle Sea на базе тг-бота.
 
 ### Languages and Tools:
 ![Go](https://img.shields.io/badge/go-%2300ADD8.svg?style=for-the-badge&logo=go&logoColor=white)
