@@ -2,7 +2,6 @@
 
 ## Меня зовут Влад. Я учусь на третьем курсе МАИ . Я  бэкэнд-разработчик со знаниям Python, Golang, Linux, Git, PostgresQL, gRPC и REST API. Я увлечен созданием эффективных и масштабируемых серверных систем, отвечающих потребностям современных приложений.
 
-## Сейчас я работаю над своим пет-проектом Battle Sea на базе тг-бота.
 
 ### Languages and Tools:
 ![Go](https://img.shields.io/badge/go-%2300ADD8.svg?style=for-the-badge&logo=go&logoColor=white)
