@@ -1,6 +1,3 @@
-# Привет 👋
-
-
 > Fuck that bitch, I go too dumb (Blatt)
 > Rick Owens on top of ones
 > We don't do no one-on-ones (Blatt)
