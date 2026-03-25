@@ -1,5 +1,5 @@
-# Hate jews
-## Slava Rodu
+
+# Slava Rodu
 
 
 
