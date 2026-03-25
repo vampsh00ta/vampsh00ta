@@ -1,4 +1,4 @@
-#Hate jews and muslims
+# Hate jews and muslims
 ## Slava Rodu
 
 
