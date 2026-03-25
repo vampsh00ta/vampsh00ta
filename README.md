@@ -1,8 +1,8 @@
 # Привет 👋
 
-Fuck that bitch, I go too dumb (Blatt)
-Rick Owens on top of ones
-We don't do no one-on-ones (Blatt)
+Fuck that bitch, I go too dumb (Blatt) \n
+Rick Owens on top of ones \n
+We don't do no one-on-ones (Blatt) \n
 Put that Xanny on your tongue
 Rock the show out like a punk
 She the type of bitch that love to fuck (Blatt)
