@@ -1,21 +1,20 @@
-> Fuck that bitch, I go too dumb (Blatt)
-> Rick Owens on top of ones
-> We don't do no one-on-ones (Blatt)
-> Put that Xanny on your tongue
->
-> Rock the show out like a punk
-> She the type of bitch that love to fuck (Blatt)
-> Baby, you the chosen one
-> And, baby, I don't fuck with none
->
-> Fell asleep in LA, woke up to the sun, ooh
-> Fuck my PO, he know I got hella guns (Yeah)
-> Ooh, and shoutout my OG, he know he keep in one, uh
-> Fuck that SGP, he know I brung the phonk (Cash, Cash, what?)
->
-> Hit him with the pump, leave him in the trunk (Cash)
-> Uh, would have fucked your baby mama but it stunk (Yeah)
-> Uh, beat a nigga ass, leave a nigga lumped (Woah, what? What? What?)
+> [Verse 2: Playboi Carti & *MexikoDro*]
+> Fuck that bitch, I go too dumb (*Blatt*)<br>
+> Rick Owens on top of ones<br>
+> We don't do no one-on-ones (*Blatt*)<br>
+> Put that Xanny on your tongue<br>
+> Rock the show out like a punk<br>
+> She the type of bitch that love to fuck (*Blatt*)<br>
+> Baby, you the chosen one<br>
+> And, baby, I don't fuck with none<br>
+> Fell asleep in LA, woke up to the sun, ooh<br>
+> Fuck my PO, he know I got hella guns (Yeah)<br>
+> Ooh, and shoutout my OG, he know he keep in one, uh<br>
+> Fuck that SGP, he know I brung the phonk (Cash, Cash, what?)<br>
+> Hit him with the pump, leave him in the trunk (Cash)<br>
+> Uh, would have fucked your baby mama but it stunk (Yeah)<br>
+> Uh, beat a nigga ass, leave a nigga lumped (*Woah*, what? What? What?)
+
 
 
 
