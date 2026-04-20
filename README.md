@@ -1,5 +1,4 @@
 
-# Slava Rodu
 # Free the political prisoners 
 
 
